@@ -8,7 +8,7 @@ Joy and happiness.
 In a world of dreams,
 Heroes and villains clash in
 Animated tales.
-
-
-
+Joyful hearts beat fast
+Radiant smil lights up the day
+Pure happiness reigns.
 Goodbye world!
