@@ -5,12 +5,15 @@ Touch down! Victory.
 
 
 
+Laughter echoes out,
+Jokes and wit fill the room with
+Joy and happiness.
 
 
 
 
 
-Joyful hearts beat fast
-Radiant smil lights up the day
-Pure happiness reigns
+
+
 Goodbye world!
+
